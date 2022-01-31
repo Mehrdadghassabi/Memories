@@ -1,2 +1,2 @@
 # Memories
-these are my first lines of code in 2014 when I was 14 years old ;)
+these are my first lines of code when I was 13 years old boy ;)
